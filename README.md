@@ -1,4 +1,4 @@
-<h1>Buy Telegram Members to Rapidly Grow Your Audience</h1>
+<h2>Buy Telegram Members to Rapidly Grow Your Audience</h2>
 
 Buy Telegram members is an effective strategy to boost your social media presence quickly. 
 When you boost Telegram members it increases your visibility, making your content more likely to reach a larger audience. 
